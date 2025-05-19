@@ -1,2 +1,2 @@
 Your limitation—it's only your imagination. Push yourself, because no one else is going to do it for you. Sometimes later becomes never. ... Great things never come from comfort zones. Dream it. ... Success doesn't just find you. ... The harder you work for something, the greater you'll feel when you achieve it. Dream bigger
-All books Free If you support our efforts so Donate  03236603008. Jazz cash/ Easy Paisa 
+All books Free If you support our efforts so Donate only 100 PKR.   (PK18UNIL0109000312810818). UBL Title AKASH 
